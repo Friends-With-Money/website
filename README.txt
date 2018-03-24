@@ -1,0 +1,1 @@
+Money with friends is a cool way to get money from your friends.
